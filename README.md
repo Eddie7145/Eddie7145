@@ -4,7 +4,7 @@
 - 👀 I’m a lover of art, music, creativity, and culture. I love to see things and the world in a different way, in a way where the possibilities are endless
 - and all you have to do is forge your path and face those possibilities head on regardless of what comes your way.
 
-- 🌱 I’m currently undergoing and internship program at ALX Africa, and I believe the journey just began.
+- 🌱 I’m currently undergoing an internship program at ALX Africa, and I believe the journey just began.
 
 - 💞️ I’m a big techie, I'm really excited about creating new innovative ways to solving problems in the world.
 
